@@ -117,9 +117,9 @@ Submit a Pull Request
 
 For queries or collaboration:
 
-📩 Email: your-email@example.com
+📩 Email: mr.vin004@gmail.com
 
-💼 LinkedIn: your-linkedin
+💼 LinkedIn:(https://www.linkedin.com/in/vinay-chauhan-b765aa251/)
 
 ⭐ Support
 
